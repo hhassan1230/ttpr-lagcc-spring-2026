@@ -1,4 +1,4 @@
-# TTPR LaGuardia Community College 2025 Syllabus
+# TTPR LaGuardia Community College 2026 Syllabus
 
 ## Welcome
 
